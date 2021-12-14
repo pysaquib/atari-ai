@@ -11,5 +11,5 @@
 
 <br>
 
-<img src="http://img.pandawhale.com/168221-Silicon-Valley-Russ-Hanneman-t-Earx.gif"></img>
+<img src="https://i.giphy.com/media/jSKa8UEOn8aQSvTQUk/giphy.webp"></img>
 # THIS. GUY. FUCKS.
